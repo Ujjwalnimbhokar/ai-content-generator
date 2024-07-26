@@ -18,3 +18,24 @@ AI Content Generator
 
   
 
+![Screenshot 2024-07-26 132134](https://github.com/user-attachments/assets/76155eca-3f19-4a64-9691-b50999b8e5ee)
+
+
+
+
+
+![Screenshot 2024-07-26 132241](https://github.com/user-attachments/assets/df9137ba-a042-42b4-b704-a8cba929a1dc)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
